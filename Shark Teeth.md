@@ -1,0 +1,1 @@
+Mentioned in [[Episode 10 - Vampire Killer]] describing the teeth of a Vampire.

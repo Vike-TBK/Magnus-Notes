@@ -24,12 +24,12 @@ The drunk woman with him would ask him questions, and he would just look at her 
 This vampire went by the name [[Robert Arden]].
 It brought the woman to it's house, but locked the door behind it.
 The vampire walk behind the woman and opened it's sharp teeth mouth to feed.
-[[Trevor Herbert]] through a rock through the window, which made the vampire attack Trevor.
+[[Trevor Herbert]] through a rock through the window, which made the [[Vampire]] attack Trevor.
 The vampire's skin is cold and spongy, like the inside of a bruised apple.
 It bit [[Trevor Herbert]] neck. Not enough to kill him, but enough to start bleeding. The vampire starting sucking the blood from Trevor, but the heroin in Trevor's bloodstream caused the vampire to stop feeding and start having a choking fit.
 The woman the vampire brought in started stabbing the vampire repeatably with a kitchen knife. [[Trevor Herbert]] grabbed the wooden stake and stabbed the vampire's heart with it.
 The chest of the vampire was soft, it didn't feel like it had a ribcage.
-The vampire went stiff, but it's eyes were darting around. The woman left, and he never knew her name.
+The [[Vampire]] went stiff, but it's eyes were darting around. The woman left, and he never knew her name.
 [[Trevor Herbert]] used his lighter and set [[Robert Arden]] on fire.
 In [[1982]], [[Trevor Herbert]] mistook a man name [[Alard Dupont]] for a vampire and killing him.
 Vampires are rare.
@@ -44,3 +44,5 @@ The homeowner of the house [[Sylvia McDonald]] vampire inhabited wasn't found.
 A bag was given with this statement. It was filled with dozens of [[Shark Teeth]]. Most likely they're Vampire Teeth.
 The teeth do not resemble any species on record.
 The Vampire Teeth are missing from the [[Magnus Archive]].
+The file number for the teeth is listed among multiple information requests from the Institute’s government and law enforcement 
+contracts.
