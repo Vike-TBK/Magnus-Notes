@@ -37,3 +37,10 @@ Vampires are rare.
 
 
 **Points of Interest From Jonathan Sims:**
+[[Trevor Herbert]] died in the [[Magnus Institute]] from lung cancer just after making this statement. Before this, they advised him to seek medical attention, but he refused so he could make his statement.
+The homeowner of the house [[Sylvia McDonald]] vampire inhabited wasn't found.
+[[Robert Arden]] did have records of living in the house the [[Robert Arden]] vampire inhabited.
+[[Trevor Herbert]] did give any more vampire killings.
+A bag was given with this statement. It was filled with dozens of [[Shark Teeth]]. Most likely they're Vampire Teeth.
+The teeth do not resemble any species on record.
+The Vampire Teeth are missing from the [[Magnus Archive]].
