@@ -1,0 +1,2 @@
+![[Lichtenberg figure Image.jpeg]]
+The Lichtenberg figure is a branching, fractal-like patterns caused by high-voltage electrical discharges across or through insulating materials, or on human skin following a lightning strike.

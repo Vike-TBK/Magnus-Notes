@@ -1,0 +1,1 @@
+Made statement in [[Episode 10 - Vampire Killer]].

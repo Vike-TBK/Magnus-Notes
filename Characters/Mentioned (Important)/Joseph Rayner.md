@@ -1,0 +1,1 @@
+Mentioned in [[Episode 7 - The Piper]], they found his dog tag near where a search party found [[Wilfred Owen]].

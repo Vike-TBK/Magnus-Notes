@@ -1,0 +1,1 @@
+Father [[Edwin Burroughs]] from [[Episode 8 - Burned Out]].

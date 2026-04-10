@@ -1,0 +1,1 @@
+Gave a statement in [[Episode 5 - Thrown Away]].

@@ -1,0 +1,1 @@
+Mentioned in [[Episode 6 - Squirm]] talking about a creature that burst out of the individual, [[Harriet Lee]].
