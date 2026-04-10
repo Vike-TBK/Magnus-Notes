@@ -12,7 +12,14 @@ The vampire uses the same path in the house it inhabits.
 It watched [[Trevor Herbert]] eat the rotten fruit it offered him, then left.
 [[Trevor Herbert]] his under the bed [[Nigel Herbert]] was in, and did nothing as [[Nigel Herbert]] died.
 The mouth of the vampire has nothing but a dozen of sharp pointed teeth, it bit into [[Nigel Herbert]]'s neck. It's jaw dropped, and a long thick tongue came out of it's throat and sucked the blood out of [[Nigel Herbert]]'s bleeding neck.
-It took 10 min
+It took 10 minutes to suck all the blood from [[Nigel Herbert]], and it laid back to digest.
+[[Trevor Herbert]] slowly grabbed [[Nigel Herbert]]'s pocket knife and cut the vampire's stomach. He grabbed a candle and lit the vampire ablaze.
+Vampires burn like dry tinder.
+[[Trevor Herbert]] found the key to the ground door in the vampire's chamber. He didn't describe this room, but said "It appears to be where the creature took most of its meals."
+He ran out as the house burned down.
+In [[1968]], [[Trevor Herbert]] asked a man for money, he gave a look that he wasn't, and Trevor left, then realized the man didn't say anything.
+He followed the man from a distance.
+The drunk woman with him would ask him questions, and he would 
 
 
 **Points of Interest From Jonathan Sims:**
