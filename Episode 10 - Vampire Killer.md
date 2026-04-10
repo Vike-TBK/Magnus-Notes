@@ -19,7 +19,14 @@ Vampires burn like dry tinder.
 He ran out as the house burned down.
 In [[1968]], [[Trevor Herbert]] asked a man for money, he gave a look that he wasn't, and Trevor left, then realized the man didn't say anything.
 He followed the man from a distance.
-The drunk woman with him would ask him questions, and he would 
+The drunk woman with him would ask him questions, and he would just look at her and she would smile as if he had given her an answer. He never said a word.
+[[Trevor Herbert]] grabbed a piece of wood and sharpened it to a point, hoping to stab the vampire man.
+This vampire went by the name [[Robert Arden]].
+It brought the woman to it's house, but locked the door behind it.
+The vampire walk behind the woman and opened it's sharp teeth mouth to feed.
+[[Trevor Herbert]] through a rock through the window, which made the vampire attack Trevor.
+The vampire's skin is cold and spongy, like the inside of a bruised apple.
+It bit [[Trevor Herbert]] neck. Not enough to kill him, but enough to start bleeding. The vampire starting sucking the blood from Trevor, but the heroin in Trevor's bloodstream caused the vampire to 
 
 
 **Points of Interest From Jonathan Sims:**
