@@ -9,4 +9,7 @@ He asks [[Joshua Gillespie]] to hold on to a package of his for awhile (the cask
 [[Joshua Gillespie]] would sleepwalk opening the coffin, but would wake up before he opens it.
 [[John (Do Not Open)]] probably opened the coffin and died.
 The van of The [[Two Mysterious Delivery Men]] has the words "[[Breekon and Hope deliveries]]"
+
+
+**Points of Interest From Jonathon Sims:**
 For the two years that he was a resident, [[Joshua Gillespie]] was the only person in the building. No one ever moved in after he left and was later demolished.
