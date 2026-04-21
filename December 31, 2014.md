@@ -1,0 +1,1 @@
+[[Antonio Blake]]'s died of a heart attack.
