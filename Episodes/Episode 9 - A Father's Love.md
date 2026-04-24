@@ -1,6 +1,8 @@
 Statement of [[Julia Montauk]], regarding the actions and motivations of her father, the serial killer [[Robert Montauk]].
 
-**Date of Statement:** [[December 3, 2002]]
+**Date of Statement:** [[December 3, 2002]].
+
+**Case Number:** #0020312
 
 **Points of Interest:**
 Dad's a killer. Killed at least 40 people over the course of 5 years, Before his arrest in [[1995]]. He died in prison in [[2002]].

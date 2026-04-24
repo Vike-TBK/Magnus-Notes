@@ -2,6 +2,8 @@ Statement of [[Trevor Herbert]], regarding his life as a self-proclaimed vampire
 
 **Date of Statement:** [[July 10, 2010]]
 
+**Case Number:** #0101007
+
 **Points of Interest:**
 In [[Autumn, 1959]], a vampire going by the name [[Sylvia McDonald]] took in [[Trevor Herbert]] and his brother, [[Nigel Herbert]] to it's house and killed [[Nigel Herbert]].
 A vampire is more of an animal than a human.

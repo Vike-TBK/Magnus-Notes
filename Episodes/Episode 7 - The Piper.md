@@ -1,6 +1,8 @@
 Statement of Staff Sergeant [[Clarence Berry]], regarding his time serving with [[Wilfred Owen]] in the Great War.
 
-**Date of statement:** [[November 6, 1922]]
+**Date of statement:** [[November 6, 1922]].
+
+**Case Number:** #9220611
 
 **Points of Interest:**
 [[Wilfred Owen]] was assign to [[Clarence Berry]]'s group in [[July, 1916]].

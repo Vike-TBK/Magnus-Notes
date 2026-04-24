@@ -2,6 +2,8 @@ Statement of [[Timothy Hodge]], regarding his sexual encounter with one [[Harrie
 
 **Date of statement:** [[December 9, 2014]].
 
+**Case Number:** #0140912
+
 **Points of Interest:**
 He met [[Harriet Lee]] at a bar. She seems to be looking around the bar nervously.
 While they left the bar, she tightly held on to [[Timothy Hodge]]'s arm. She also starts scratching her arms. Her nervousness stopped when they made it to Timothy's place.

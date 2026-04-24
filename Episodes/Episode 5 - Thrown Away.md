@@ -2,6 +2,8 @@ Statement of [[Kieran Woodward]], regarding items recovered from the refuse of [
 
 **Date of statement:** [[February 23, 2009]]
 
+**Case Number:** #0092302
+
 **Points of Interest:**
 In the first bag was filled with [[Doll heads]].
 Most of this happens on [[93 Lancaster Road]].
