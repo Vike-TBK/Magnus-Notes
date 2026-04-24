@@ -25,7 +25,7 @@ That night, she didn't sleep. The lights outside started going out.
 "I heard a knock on the front door. Firm, unhurried and insistent. Silence. I did not move. The knocking came again, harder this time, and I heard the door rattle on its hinges. As it got louder it began to sound less and less like a person knocking and more like… wet meat being slammed the study wood of the front door."
 [[Julia Montauk]] called the police.
 The door broke down and she heard growling. She ran to the shed. Blue light came from it. Inside it was [[Robert Montauk]]. He was knelt in the centre of an ornate chalk pattern scrawled on the floor. In front of him lay an unknown dead man with his chest cut open. In one hand [[Robert Montauk]] held knife, and in the other he held the man’s heart. [[Robert Montauk]] was chanting and as the song rose and fell the heart in his hand beat to its rhythm, and the blue light brightened and dimmed in time. the walls were covered in shelves filled formaldehyde containing a single heart, which also beat in time with the one in [[Robert Montauk]]’s hand.
-The dead man had the same silver pendant as the mother.
+The dead man had the same silver pendant as the mother. ([[Eye Pendant]])
 [[Robert Montauk]] stabbed the man's heart, and the blue glow, the darkest, and growling vanished.
 They heard sirens in the distance, [[Robert Montauk]] said he was sorry, and ran away.
 
