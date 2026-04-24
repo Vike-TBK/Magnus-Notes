@@ -2,6 +2,8 @@ Statement of [[Amy Patel]], regarding the alleged disappearance of her acquainta
 
 **Date of statement:** [[July 1, 2007]]
 
+**Case Number:** #0070107
+
 **Points of interest:**
 [[Graham Folger]] writes a lot of notebooks.
 [[Graham Folger]] is always scanning his surroundings.

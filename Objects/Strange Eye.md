@@ -1,8 +1,10 @@
-Mentioned in [[Episode 4 - Page Turner]], [[Episode 9 - A Father's Love]].
+Mentioned in [[Episode 4 - Page Turner]], [[Episode 9 - A Father's Love]], [[Episode 12 - First Aid]].
 
 Main imagery is of an eye, sometimes open, sometimes half open, or sometimes closed.
 
-Probably related to a cult.
+Seen in [[Episode 12 - First Aid]] where a frame of camera footage was replaced with a close up of a human eye, staring back into the video feed.
+
+Related to a cult.
 Cult names: [[Peoples’ Church of the Divine Host]].
 
 **Points of Interest:**

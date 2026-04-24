@@ -2,6 +2,8 @@ Statement of [[Dominic Swain]], Regarding a book briefly in his possession in th
 
 **Date of Statement:** [[June 28, 2013]]
 
+**Case Number:** #0130628
+
 **Points of interest:**
 [[Katherine Mendes]] is [[Dominic Swain]]'s friend
 He bought the Book "[[Ex Altiora]]" from the library [[Jurgen Leitner]] at a charity shop, [[Oxfam charity shop]] in [[Notting Hill Gate]].

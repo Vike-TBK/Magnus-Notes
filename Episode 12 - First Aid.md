@@ -2,6 +2,8 @@ Statement of [[Lesere Saraki]], regarding a nightshift at St. Thomas Hospital, L
 
 **Date of Statement:** [[February 11, 2012]].
 
+**Case Number:** #0121102
+
 **Points of Interest:**
 [[Kayleigh Grice]], a doctor of the hospital.
 Bodies are evenly burned. Clothing was unharmed.
@@ -21,9 +23,13 @@ The voice of the [[Strange Old Man (First Aid)]] grew louder. His eyes were open
 The [[Strange Old Man (First Aid)]] then began to "Cremate into ash", even the scalpel disintegrated. [[Gerard Keay]] collected the ashes and gave it to [[Lesere Saraki]] and ask for it to be disposed.
 The people in the reception were back.
 [[Gerard Keay]] treated for four days before being discharged into the care of his mother.
-[[Lesere Saraki]] now gets the feeling of being watched. Not threatened or judged. Just watched. [[Lesere Saraki]] avoids the storage room now.
+[[Lesere Saraki]] now gets the feeling of being watched. Not threatened or judged. Just watched. [[Lesere Saraki]] avoids the storage room now. ([[Feeling Of Being Watched]])
 
 **Points of Interest From Jonathan Sims:**
 Now missing case for the [[Strange Old Man (First Aid)]] was ever opened.
 Asag is the name of a demon in Sumerian mythology associated with disease and corruption. It was also fabled that Asag was able to boil fish alive in their rivers.
 “Veepalach” might also be a mishearing of the Polish word “wypalać”, according to [[Martin]], which means to cauterize or brand.
+This is the second time [[Gerard Keay]] has appeared on the statements found so far.
+[[Gerard Keay]] seems to have died from a brain tumor in [[2016]].
+Camera footage shows the people in the reception all stand up and file out, then return 15 minutes later.
+13 minutes into that gap, a single frame was replaced with a close up human eye, staring back into the video feed. ([[Strange Eye]])
