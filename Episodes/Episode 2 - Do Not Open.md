@@ -2,7 +2,7 @@ Statement of [[Joshua Gillespie]], Regarding his time in possession of an appare
 
 **Date of statement:** [[November 22, 1998]].
 
-**Case Number:** #9982211
+**Case Number:** #9981122
 
 **Points of interest:**
 Meets a "very short" man with brownish hair. The man introduces himself as [[John (Do Not Open)]]. He's also described as harder to look at the longer you look at him.
