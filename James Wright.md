@@ -1,0 +1,1 @@
+Previous Head of The [[Magnus Institute]].
