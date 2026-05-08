@@ -28,7 +28,7 @@ The people in the reception were back.
 **Points of Interest From Jonathan Sims:**
 Now missing case for the [[Strange Old Man (First Aid)]] was ever opened.
 Asag is the name of a demon in Sumerian mythology associated with disease and corruption. It was also fabled that Asag was able to boil fish alive in their rivers.
-“Veepalach” might also be a mishearing of the Polish word “wypalać”, according to [[Martin]], which means to cauterize or brand.
+“Veepalach” might also be a mishearing of the Polish word “wypalać”, according to [[Martin Blackwood]], which means to cauterize or brand.
 This is the second time [[Gerard Keay]] has appeared on the statements found so far.
 [[Gerard Keay]] seems to have died from a brain tumor in [[2016]].
 Camera footage shows the people in the reception all stand up and file out, then return 15 minutes later.

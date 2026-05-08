@@ -1,1 +1,3 @@
-Founded in [[1818]].
+Founded by [[Jonah Magnus]] in [[1818]].
+
+Located in London.

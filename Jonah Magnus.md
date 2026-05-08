@@ -1,0 +1,1 @@
+Founder of the [[Magnus Institute]].

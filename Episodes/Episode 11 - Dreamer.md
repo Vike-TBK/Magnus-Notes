@@ -26,5 +26,5 @@ and cabinets stretching off into the distance. These shelves were coated in a st
 
 **Points of Interest From Jonathan Sims:**
 [[Jonathan Sims]] was hired just after [[Gertrude Robinson]] disappeared.
-When Jon asked [[Elias bouchard]] about Gertrude, his exact phrasing was that she “died in the line of duty.”
+When Jon asked [[Elias Bouchard]] about Gertrude, his exact phrasing was that she “died in the line of duty.”
 [[Antonio Blake]] seems to be a fake name, and anything related appears to be fraudulent. (Very Odd considering Graham has some related threads to [[Graham Folger]])
