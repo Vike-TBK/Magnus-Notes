@@ -10,3 +10,6 @@ Had a brass pendant of an eye.
 
 **Description in [[Episode 12 - First Aid]]:**
 "He was smaller than the first man, and younger, I’d guess in his mid-thirties. He was clean-shaven, but had long hair dyed completely black. He wore a similar suit to the older man, except that over the top he wore a long black leather coat, just as undamaged as the rest. ---Small, tattooed eyes on every one of his joints: his knees, his elbows and even his knuckles, as well as just over his heart."
+
+**Description in [[Episode 35 - Old Passages]]:**
+"He looked to be in his late teens, I’d guess. He was dressed all in black, with heavy looking boots and a T-shirt with the logo of some band emblazoned on it, Megadon or Mastodon, or something like that. His hair was long and greasy, almost down to his shoulders, and looked to be dyed almost the same black as his clothes."
