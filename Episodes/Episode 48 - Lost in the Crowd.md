@@ -5,5 +5,6 @@ Statement of [[Andrea Nunis]], regarding a series of encounters in the streets o
 **Case Number:** #0100325
 
 **Points of Interest:**
+[[Gerard Keay]] mentioned.
 
 **Points of Interest From Jonathan Sims:**
