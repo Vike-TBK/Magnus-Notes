@@ -1,1 +1,1 @@
-Mentioned in [[Episode 49 - The Butcher's Window]].
+Mentioned in [[Episode 17 - The Boneturner's Tale]], [[Episode 49 - The Butcher's Window]]
