@@ -1,4 +1,4 @@
-Mentioned in [[Episode 4 - Page Turner]], [[Episode 35 - Old Passages]], [[Episode 50 - Foundations]]
+Mentioned in [[Episode 4 - Page Turner]], [[Episode 17 - The Boneturner's Tale]], [[Episode 35 - Old Passages]], [[Episode 50 - Foundations]]
 
 Leitner had been a big name in the literary scene during the 1990s; some rich Scandinavian recluse paying absurd amounts of money for whatever books took his fancy.
 He’d often have books custom-bound after providing a manuscript, or even commission authors to produce works to his brief.
