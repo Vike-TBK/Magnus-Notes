@@ -32,4 +32,6 @@ The thing using Jared had multiple limbs.
 **Points of Interest From Jonathan Sims:**
 It is a [[Jurgen Leitner]] book.
 The book and "[[Jared Hopworth]]" are gone.
-[[Sebastian Adekoya]] was found dead in the middle of the road
+[[Sebastian Adekoya]] was found dead in the middle of the road on [[April 17, 2006]].
+It was ruled off as Hit-and-run, despite having no marks.
+His body was mangled. (Bone Removing Magic)

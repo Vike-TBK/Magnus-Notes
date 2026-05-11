@@ -1,1 +1,0 @@
-Mentioned in [[Episode 5 - Thrown Away]] when describing the ribbon on a bag that had packing peanuts and a copper or bronze heart.
