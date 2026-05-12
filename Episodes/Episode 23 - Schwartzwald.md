@@ -10,7 +10,7 @@ Statement of [[Albrecht von Closen]], regarding a discovered tomb near his estat
 The right inscription of the gravestones were to withered to read.
 Mausoleum with the name "[[Johann von Württemberg]]" on it.
 Albrecht doesn't know of any town in this area that could have a cemetery this big.
-[[Wilhelm]] doesn't know of any "Johann" and doesn't know about any town nearby.
+[[Wilhelm Von Closen]] doesn't know of any "Johann" and doesn't know about any town nearby.
 Someone was watching [[Albrecht von Closen]] going to the cemetery.
 [[Strange Old Man (Schwartzwald)]]
 "He was short and squat, wearing an old-fashioned, black frock coat and knee breeches, though his head was shadowed by a wide-brimmed black hat. By his costume, I assumed him to be an old man, perhaps a groundskeeper for this place, or simply a recluse that lived nearby."
@@ -36,5 +36,11 @@ The name of [[Johann von Württemberg]] was also “[[Ulrich’s bastard]]”
 The [[Strange Old Man (Schwartzwald)]] from the cemetery appeared again
 His eyes were gone, only sockets.
 "I backed away too quickly and slipped, falling hard upon the ground. In a second he was above me, and he smiled. He said something to me, but my mind was aflame with panic and I didn’t hear what it was. He reached towards me slowly, insolently, as though he sought to savour this moment but would not be rushed. Then, quite without warning, he stopped. His head snapped up to stare at something, like a gundog that hears a shot. He stood there, hand poised as though in indecision. And then… And then, he vanished, as though he had never been there, and I simply lay upon the ground, winded and afraid."
+The coin is missing.
 
 **Points of Interest From Jonathan Sims:**
+"I’ve only found one reference to any ‘Johann von Württemberg’ in any of the German history reference material we have available. Jan Moira’s Cradle of Germany – Württemberg through the Centuries mentions rumours that Ulrich I, Count of Württemberg had a second son out of wedlock in 1255. No name is listed, but certain enemies of the count were known to spread rumours that this exiled son was “keeping the company of witches”. 1279 was also the year that Ulrich I’s successor, Ulrich II, died. This may simply have been coincidence, however, as he was succeeded by his half-brother Eberhard I."
+A death happened in 1816, [[Rudolph Ziegler]].
+His wounds were “beyond the capability of human violence”.
+The book cannot be found. It may be in the [[M.A. Artifact Storage]].
+"I have located a genealogy for [[Wilhelm Von Closen]], though. He married and had children, and the family remained located in and around Schramberg for almost another century, before one branch emigrated to England in [[1908]]. They had a daughter, [[Elsa (Schwartzwald)]], who went on to marry a man by the name of [[Michael Keay]] in [[1920]]. In [[1924]], they had one daughter, whose name was [[Mary Keay]]." (Interesting)
