@@ -23,5 +23,5 @@ The case is a bust.
 [[Robert Smirke]]’s buildings have higher percentages of reported paranormal sightings than any other architect of similar profile.
 
 Worms were found in [[Jonathan Sims]] office, he left to look for the fire extinguishers.
-[[Two Mysterious Delivery Men]] came to deliver a package to [[Martin Blackwood]] to give to [[Jonathan Sims]].
+[[Two Mysterious Men]] came to deliver a package to [[Martin Blackwood]] to give to [[Jonathan Sims]].
 (I hear in the background people talking, but I can't make it out.)

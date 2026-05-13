@@ -5,7 +5,7 @@ Statement of [[Gregory Pryor]], regarding his investigations into one [[Hector L
 **Case Number:** #0081103
 
 **Points of Interest:**
-[[Two Mysterious Delivery Men]] mentioned.
+[[Two Mysterious Men]] mentioned.
 [[Jared Hopworth]] mentioned.
 Note  ‘Ask for Jared’.
 Big Dude. Probably [[Jared Hopworth]].
