@@ -13,6 +13,7 @@ Has elations to a cult, [[Peoples’ Church of the Divine Host]]. The Earliest F
 
 **Appearance of Closed Eye Symbol:**
 **[[Episode 9 - A Father's Love]]:** Silver Pendant.
+**[[Episode 25 - Growing Dark]]:** On the back of a piece of paper that also read, "[[Hither Green Dissenters]]".
 
 **Appearance of Half-Open Eye Symbol:**
 
