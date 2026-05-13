@@ -1,3 +1,3 @@
 Mentioned in [[Episode 9 - A Father's Love]].
 
-Made the cult, [[Peoples’ Church of the Divine Host]].
+Made the cult, [[People's Church of the Divine Host]].

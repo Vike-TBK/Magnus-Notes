@@ -35,7 +35,7 @@ They heard sirens in the distance, [[Robert Montauk]] said he was sorry, and ran
 **Points of Interest From Jonathan Sims:**
 The dead man's name is [[Christopher Lorne]].
 The heart jars were arranged on the walls on the individual shelves forming patterns of eleven hearts on each inner wall and seven on the wall with the door.
-Cult name for the pendent: [[Peoples’ Church of the Divine Host]], a small cult that grew around the defrocked Pentecostal minister [[Maxwell Rayner]]. Name seems to be a coincidence with [[Joseph Rayner]].
+Cult name for the pendent: [[People's Church of the Divine Host]], a small cult that grew around the defrocked Pentecostal minister [[Maxwell Rayner]]. Name seems to be a coincidence with [[Joseph Rayner]].
 [[Christopher Lorne]] was apart of this cult, and hasn't been seen in six years before his murder.
 [[Maxwell Rayner]] disappeared in [[1994]] and his cult fragmented shortly after.
 [[Robert Montauk]] died in prison in [[November 1, 2002]]. He was stabbed 47 times and bled out before anyone found him.

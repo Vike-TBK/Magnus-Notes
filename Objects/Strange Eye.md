@@ -1,10 +1,10 @@
-Mentioned in [[Episode 4 - Page Turner]], [[Episode 9 - A Father's Love]], [[Episode 12 - First Aid]], [[Episode 23 - Schwartzwald]]
+Mentioned in [[Episode 4 - Page Turner]], [[Episode 9 - A Father's Love]], [[Episode 12 - First Aid]], [[Episode 23 - Schwartzwald]], [[Episode 25 - Growing Dark]]
 
 Main imagery is of an eye, open *and* closed. There may be ones with half open, but I don't know.
 
 Origin is Unknown. Earliest Fond is from the pre-1300s, with the name [[Johann von Württemberg]] associated with it. The Open Eye Symbol.
 
-Has elations to a cult, [[Peoples’ Church of the Divine Host]]. The Earliest Find is in the 2000s, Created by [[Maxwell Rayner]]. The Closed Eye Symbol.
+Has elations to a cult, [[People's Church of the Divine Host]]. The Earliest Find is in the 2000s, Created by [[Maxwell Rayner]]. The Closed Eye Symbol.
 
 **Appearance of Open Eye Symbol:**
 **[[Episode 4 - Page Turner]]:** [[Gerard Keay]]'s Painting
