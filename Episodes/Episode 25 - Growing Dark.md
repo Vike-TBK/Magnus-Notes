@@ -35,5 +35,5 @@ He found his phone and as he was turning it on, the singing became louder and lo
 "there are enough other parallels to statement #0020312 to make me suspect – and a suspicion is all that it is at present – that the [[People's Church of the Divine Host]] may still be in existence." ([[Episode 9 - A Father's Love]])
 "I don’t know for sure if Mr. Bilham remembered them correctly, but Tim pointed out that [[Ny-Ålesund]] is actually a small town in Norway. In fact, except for research installations, it is the most northerly human settlement on Earth, located at a latitude of North 78°55′30″. It is a company town, owned and operated by Outer Bay, but what it has to do with Mr. Bilham’s account is anyone’s guess."
 Nights there last a long time.
-On [[May 15, 2015]] the police were called to that same chapel. When they arrived, no one was there.
-[[May 15, 2015]] is also th
+On [[May 15, 2015]], police were called to that same chapel. When they arrived, no one was there.
+[[May 15, 2015]] is also the day [[Gertrude Robinson]] passed away.
