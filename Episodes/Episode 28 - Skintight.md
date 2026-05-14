@@ -24,3 +24,8 @@ After the filming, they dropped [[Sarah Baldwin]] off and never saw her again.
 [[Jonathan Sims]] asked if she was dreaming. She got defensive.
 
 **Points of Interest From Jonathan Sims:**
+The address [[Sarah Baldwin]] was dropped had not been occupied for the last 6 months and does not list her as a previous tenant.
+They contacted [[Georgina Barker]] who confirmed she had worked with [[Sarah Baldwin]] on two episodes of her “What the Ghost?” Podcast, having previously met her at a networking event.
+[[Georgina Barker]] hasn't seen her seen then.
+The corrupted footage had two frames were anything could be made out.
+"It appears to be an empty hospital room, as described. The only point where it differs from Ms. King’s story, is that there appear to be two figures in the shot, rather than just the one. The first seems to be kneeling, and matches the description of [[Sarah Baldwin]]. The other figure is much taller, and appears to be pointing, though no features can be made out, it does not appear to be touching the ground."
