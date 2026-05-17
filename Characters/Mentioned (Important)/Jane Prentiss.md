@@ -1,4 +1,5 @@
 Mentioned in [[Episode 6 - Squirm]].
+Made a statement in [[Episode 32 - Hive]].
 Appeared in [[Episode 38 - Lost and Found]], [[Episode 39 - Infestation]], and [[Episode 40 - Human Remains]].
 
 **Other names:** [[Woman in Red Dress]].
