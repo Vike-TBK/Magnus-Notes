@@ -45,6 +45,6 @@ The homeowner of the house [[Sylvia McDonald]] vampire inhabited wasn't found.
 [[Trevor Herbert]] did give any more vampire killings.
 A bag was given with this statement. It was filled with dozens of [[Shark Teeth]]. Most likely they're Vampire Teeth.
 The teeth do not resemble any species on record.
-The Vampire Teeth are missing from the [[Magnus Archive]].
+The Vampire Teeth are missing from the [[M.A. Artifact Storage]].
 The file number for the teeth is listed among multiple information requests from the Institute’s government and law enforcement 
 contracts.
