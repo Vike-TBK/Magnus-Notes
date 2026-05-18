@@ -11,7 +11,8 @@ They heard bagpipes or panpipes playing.
 [[Wilfred Owen]] was hit by a mortar, [[Clarence Berry]] retreated back to the trench.
 A search party found [[Wilfred Owen]] alive. They said he was unharmed by the blast, but he was shell-shocked.
 [[Wilfred Owen]] said he had "Met the war."
-Description of [[The Piper]]: "it had three faces. One to play its pipes of scrimshawed bone, one to scream its dying battle cry and one that would not open its mouth, for when it did blood and sodden soil flowed out like a waterfall. Those arms that did not play the pipes were gripping blades and guns and spears, while others raised their hands in futile supplication of mercy, and one in a crisp salute. It wore a tattered coat of wool, olive green where it was not stained black, and beneath, nothing could be seen but a body beaten, slashed and shot and until nothing remained but the wounds themselves."
+> Description of [[The Piper]]: "it had three faces. One to play its pipes of scrimshawed bone, one to scream its dying battle cry and one that would not open its mouth, for when it did blood and sodden soil flowed out like a waterfall. Those arms that did not play the pipes were gripping blades and guns and spears, while others raised their hands in futile supplication of mercy, and one in a crisp salute. It wore a tattered coat of wool, olive green where it was not stained black, and beneath, nothing could be seen but a body beaten, slashed and shot and until nothing remained but the wounds themselves."
+
 [[The Piper]] had come to claim [[Wilfred Owen]], but he wanted to stay. [[The Piper]] handed [[Wilfred Owen]] a pen, then told him it would be back to claim him again one day. [[Wilfred Owen]] was sent away to recover.
 The pen wasn't with [[Wilfred Owen]] when the search party found him. They did find a dog tag of a man called [[Joseph Rayner]].
 There is a German story about [[The Piper]].

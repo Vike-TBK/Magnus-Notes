@@ -9,8 +9,10 @@ Statement of [[Martin Blackwood]], regarding an encounter with a being they beli
 [[Martin Blackwood]] isn't the smallest guy in the world.
 [[Yasir Kundi]].
 [[Jane Prentiss]] encounter.
-"Her hair was long and black, though it was so twisted and dirty it was hard to tell if that was its original colour. She wore a threadbare grey overcoat, though beneath it her legs were bare, and covered with what I at first I thought were spots. In her right hand she held a stained, green handkerchief." ([[Green]] mentioned.)
-"Her head snapped towards me and she locked eyes with me. Her pupils seemed ragged and collapsed, and when she smiled her teeth were chipped and blackened."
+> "Her hair was long and black, though it was so twisted and dirty it was hard to tell if that was its original colour. She wore a threadbare grey overcoat, though beneath it her legs were bare, and covered with what I at first I thought were spots. In her right hand she held a stained, green handkerchief." ([[Green]] mentioned.)
+
+> "Her head snapped towards me and she locked eyes with me. Her pupils seemed ragged and collapsed, and when she smiled her teeth were chipped and blackened."
+
 [[Martin Blackwood]] dropped his phone as he ran.
 Non of Martin's home electronics were working.
 Martin blocked every gap were the [[White Worms]] could attack him.
@@ -20,4 +22,4 @@ Then Jane just... Left. Martin ran back to the Institute after she was gone.
 
 **Points of Interest From Jonathan Sims:**
 [[Jonathan Sims]] suggested [[Martin Blackwood]] to stay in the [[Magnus Archive]].
-Jonathan received a text from Martin's phone, “Keep him. We have had our fun. He will want to see it when the Archivist’s crimson fate arrives.” ([[Archivist's Crimson Fate]]. Interesting.)
+> Jonathan received a text from Martin's phone, “Keep him. We have had our fun. He will want to see it when the Archivist’s crimson fate arrives.” ([[Archivist's Crimson Fate]]. Interesting.)
