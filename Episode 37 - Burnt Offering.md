@@ -15,6 +15,7 @@ The have the [[Ornate Wooden Table]]. ([[Episode 3 - Across The Street]])
 
 The place [[Jason North]] goes is very far away.
 [[Lucy]], [[Ethan]].
-
+Clearing with trees planted in a circle.
+The trees look like they've been planted 50 years ago. (So some time in the 1950s)
 
 **Points of Interest From Jonathan Sims:**
