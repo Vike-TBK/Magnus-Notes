@@ -5,7 +5,16 @@ Statement of [[Jason North]], regarding the discovery of an alleged ritual site 
 **Case Number:** #0090608
 
 **Points of Interest:**
+[[Jonathan Sims]] wanted [[Martin Blackwood]] to tell him about the [[Two Mysterious Men]].
+> "They were big, and they spoke with cockney accents that might have been fake, and they delivered a package for you."
+> 
+> "I guess Rosie must have signed for it. I mean, it’s her office on the way to Artifact Storage, that makes sense."
 
+The have the [[Ornate Wooden Table]]. ([[Episode 3 - Across The Street]])
+[[Martin Blackwood]] wants to destroy the [[Ornate Wooden Table]] in the [[M.A. Artifact Storage]].
+
+The place [[Jason North]] goes is very far away.
+[[Lucy]], [[Ethan]].
 
 
 **Points of Interest From Jonathan Sims:**
