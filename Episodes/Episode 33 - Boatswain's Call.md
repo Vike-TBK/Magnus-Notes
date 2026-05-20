@@ -37,6 +37,18 @@ They silently rowed away from the ship.
 > "It was shrill, so high and piercing that I felt my hair stand on end, but it also seemed distant. Like I was hearing it from far, far away. I don’t know how long he blew that boatswain’s call for, but by the end, I realised we were surrounded by thick sea smoke. We should have far too far south for it, but it rolled and billowed around the lifeboat, obscuring the Tundra. No-one said a word, but I could have sworn a few of my shipmates were crying."
 
 They returned to the ship, and [[Sean Kelly]] was nowhere to be seen. He was never seen again.
-Everyone began to
+Everyone began to act normally.
+Everytime [[Carlita Sloane]] asked about [[Sean Kelly]], the crew gave her a dark look.
+> "At one point the third mate, a man named Kim Duong, told me that I should shut up and be grateful, as it hadn’t been “an easy choice”."
+
+She left the ship as soon as it docked.
+> "I didn’t even think about my pay until it came through a couple of days later: €25,000. For barely two weeks work. I don’t mind telling you, it was almost enough to tempt me back. Almost."
 
 **Points of Interest From Jonathan Sims:**
+They can't fully investigate, It's not that paranormal.
+The ship is owned my [[Solus Shipping PLC]], a company founded and majority owned by [[Nathaniel Lukas]].
+the [[Lukas family]] also provides funding to several academic and research organisations, including the [[Magnus Institute]].
+> "Much as I want to dig further into this, especially given certain parallels with case 0161301, Elias gets very twitchy when we look into anything that might conceivably have funding repercussions."
+
+[[Sean Kelly]] disappeared from the port of Felixstowe in [[October, 2010]], and his body washed up on the coast of Morocco in [[April, 2011]], six months later.
+> "According to the coroner, it had only been in the water for five days. Maybe I’ll mention it to Elias. Just in case."
