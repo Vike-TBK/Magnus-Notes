@@ -17,5 +17,9 @@ The place [[Jason North]] goes is very far away.
 [[Lucy]], [[Ethan]].
 Clearing with trees planted in a circle.
 The trees look like they've been planted 50 years ago. (So some time in the 1950s)
+> "In the centre was a large piece of stone, crudely hacked into what looked like a small seat or… maybe an altar."
+
+There were no animals around.
+
 
 **Points of Interest From Jonathan Sims:**
