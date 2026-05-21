@@ -15,7 +15,7 @@ The [[Magnus Archive Tunnels|Tunnels]] were dead quiet.
 > "To call it a maze wouldn’t quite be accurate, as a maze is designed. It is set out with an obvious goal, even if that goal is to confuse and disorientate. This place, it felt more organic in its unpredictability, as though it had been intended to be used, to be travelled, but had gotten twisted somehow. I found spaces that seemed intended as rooms but without doors. Elsewhere, there were doors that seemed simply attached to the walls. Most of these were firmly shut, though some opened to reveal the flat grey stone behind. Only a handful I opened had actual rooms behind them, and in every case I found myself wondering whether that was where Martin had found her."
 
 The police took [[Gertrude Robinson|Gertrude]]'s tapes for evidence.
-There were areas were the [[worm]]
+There were areas were the [[White Worms|Worms]] were cleared by the [[Magnus Institute|Institute]], and areas were they didn't.
 
 **Points of Interest From Jonathan Sims:**
 
