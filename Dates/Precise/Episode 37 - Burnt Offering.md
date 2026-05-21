@@ -14,7 +14,7 @@ The have the [[Ornate Wooden Table]]. ([[Episode 3 - Across The Street]])
 [[Martin Blackwood]] wants to destroy the [[Ornate Wooden Table]] in the [[M.A. Artifact Storage]].
 
 The place [[Jason North]] goes is very far away.
-[[Lucy]], [[Ethan North]].
+[[Lucy North]], [[Ethan North]].
 Clearing with trees planted in a circle.
 The trees look like they've been planted 50 years ago. (So some time in the 1950s)
 > "In the centre was a large piece of stone, crudely hacked into what looked like a small seat or… maybe an altar."
@@ -34,9 +34,11 @@ Every animal around the circle was burned.
 He dropped one of the jars and ran with the photograph that was inside.
 He gave it to the [[Magnus Institute]].
 His car and house burned down.
-Something happened to [[Lucy]] and [[Ethan North]].
+Something happened to [[Lucy North]] and [[Ethan North]].
 
 **Points of Interest From Jonathan Sims:**
 [[Ethan North]] is fine now. His with a foster family.
 There's no evidence of a clearing.
 > "There’s no reason to believe that when [[Jason North]] doused himself in petrol on [[August 10, 2009]], then lit himself on fire, he was doing anything other than acting out the delusions of a paranoid alcoholic. Paramedics took him to Raigmore Hospital, where he died three days later. He never regained consciousness."
+
+The photograph is of [[Gertrude Robinson]], [[2002]].
