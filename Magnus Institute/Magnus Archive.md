@@ -1,1 +1,6 @@
+---
+aliases:
+  - Archive
+---
+
 The Archive of the statements and artifacts inside the [[Magnus Institute]].
