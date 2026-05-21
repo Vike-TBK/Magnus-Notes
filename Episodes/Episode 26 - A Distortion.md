@@ -30,10 +30,10 @@ She used the Co2 fire extinguisher on the [[White Worms]], and they died.
 The man's name was [[Timothy Hodge]]. ([[Episode 6 - Squirm]])
 [['Michael']] reached through [[Sasha James|Sasha]] and pulled one of the [[White Worms]] from her arm.
 
-[[Sasha James]] said this job isn't normal and they should quit, but when [[Jonathan Sims|Jonathan]] asked if she'd like to quit, she refused. [[Jonathan Sims]] also doesn't want to quit, he has to know.
+[[Sasha James|Sasha]] said this job isn't normal and they should quit, but when [[Jonathan Sims|Jonathan]] asked if she'd like to quit, she refused. [[Jonathan Sims|Jonathan]] also doesn't want to quit, he has to know.
 
 **Points of Interest From Jonathan Sims:**
-[[Jonathan Sims]] believes her.
+[[Jonathan Sims|Jonathan]] believes her.
 > "The thing that most disquiets me about Sasha’s statement is this ‘Michael’. She seems pretty convinced that he was not human, at least not in the conventional sense. Almost every statement I’ve catalogued has engaged with the paranormal in some form of antagonistic relationship. The idea that there are things out there like that that want to help us... For some reason, that makes me more uncomfortable than the worm-infested creature stalking the Institute."
 
 They're now getting extra Co2 fire extinguishers around the [[Magnus Archive]].
