@@ -27,5 +27,5 @@ Her house was broken into. The [[Calliope]] and the trunk were gone.
 [[Joshua Drury]]'s throat had been crushed by a rope apparently woven out of thick wool.
 > "When discussing this case, Tim said it reminded him of some articles he'd read on travelling circuses in Russia and Poland during the early 20th century. On a whim, I hunted down a few of the volumes he mentioned in the Institute's library, and sure enough on page 43 of Gregory Petry's Freaks and Followers: Circuses in the 1940s, I found a reproduction of an old black-and-white photograph. It shows a small group of carnival workers: a contortionist, a fire-eater, two strong-men, a ringmaster and a organist sitting behind a calliope. The photograph is labelled as being from 1948 and taken in Minsk, Russia. Only the ringmaster and organist are named: Gregor Osinov and Nikolai Denikin. The name of the troupe was Цирк другого the [[Circus of the Other]]. The name rings a bell, but I can't find any other reference to it."
 
-Somewhere in the [[M.A. Artifact Storage]] is a bright red [[Calliope]]. It was acquired in [[2007]].
+Somewhere in the [[Magnus Archive Artifact Storage]] is a bright red [[Calliope]]. It was acquired in [[2007]].
 The plaque on the calliope reads, “Be still, for there is strange music”.

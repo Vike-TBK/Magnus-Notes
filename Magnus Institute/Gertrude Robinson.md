@@ -1,3 +1,8 @@
+---
+aliases:
+  - Gertrude
+---
+
 Former Head archivist of the [[Magnus Institute]].
 Was head archivist for over 50 years.
 

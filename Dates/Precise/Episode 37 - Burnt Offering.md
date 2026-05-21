@@ -11,7 +11,7 @@ Statement of [[Jason North]], regarding the discovery of an alleged ritual site 
 > "I guess Rosie must have signed for it. I mean, it’s her office on the way to Artifact Storage, that makes sense."
 
 The have the [[Ornate Wooden Table]]. ([[Episode 3 - Across The Street]])
-[[Martin Blackwood]] wants to destroy the [[Ornate Wooden Table]] in the [[M.A. Artifact Storage]].
+[[Martin Blackwood]] wants to destroy the [[Ornate Wooden Table]] in the [[Magnus Archive Artifact Storage]].
 
 The place [[Jason North]] goes is very far away.
 [[Lucy North]], [[Ethan North]].

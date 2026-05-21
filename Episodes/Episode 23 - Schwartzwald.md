@@ -48,5 +48,5 @@ The coin is missing.
 
 A death happened in 1816, [[Rudolph Ziegler]].
 His wounds were “beyond the capability of human violence”.
-The book cannot be found. It may be in the [[M.A. Artifact Storage]].
+The book cannot be found. It may be in the [[Magnus Archive Artifact Storage]].
 > "I have located a genealogy for [[Wilhelm Von Closen]], though. He married and had children, and the family remained located in and around Schramberg for almost another century, before one branch emigrated to England in [[1908]]. They had a daughter, [[Elsa (Schwartzwald)]], who went on to marry a man by the name of [[Michael Keay]] in [[1920]]. In [[1924]], they had one daughter, whose name was [[Mary Keay]]." (Interesting)

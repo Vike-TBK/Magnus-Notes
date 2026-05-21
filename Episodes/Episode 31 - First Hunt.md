@@ -25,4 +25,4 @@ The [[Whistling Man (First Hunt)]] is a werewolf.
 [[Arden Neeli]]'s body was found half a mile off the Appalachian Trail in Virginia on [[December 1, 2010]].
 > "‘Wolfmen in America’ is too far-fetched and too far away for me to care about."
 
-> "It’s… been two months now since Martin returned and we became the ones being… hunted. Are we being hunted? Martin’s still living here, and I’m leaving less and less. The worms keep turning up. We kill them, but there are more each week. What is she waiting for?"
+> "It’s… been two months now since [[Martin Blackwood|Martin]] returned and we became the ones being… hunted. Are we being hunted? Martin’s still living here, and I’m leaving less and less. The worms keep turning up. We kill them, but there are more each week. What is she waiting for?"

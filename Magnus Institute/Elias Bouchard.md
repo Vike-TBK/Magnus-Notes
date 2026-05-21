@@ -1,3 +1,8 @@
+---
+aliases:
+  - Elias
+---
+
 Head of the [[Magnus Institute]].
 
 Appearances: 

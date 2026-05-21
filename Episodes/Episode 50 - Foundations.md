@@ -15,4 +15,4 @@ Governor mentioned.
 
 
 **Supplemental:**
-[[Timothy Stoker]] noticed the police woman wandering around the [[Magnus Institute]].
+[[Tim Stoker]] noticed the police woman wandering around the [[Magnus Institute]].

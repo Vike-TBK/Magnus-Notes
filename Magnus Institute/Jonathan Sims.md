@@ -1,3 +1,8 @@
+---
+aliases:
+  - Jonathan
+---
+
 Current Head archivist of the [[Magnus Institute]].
 
 

@@ -28,6 +28,14 @@ The [[Ming Vase]] was given for free.
 > "And I saw the pale shapes of long, thin fingertips begin to creep above the lip of the pot. I remember thinking that it couldn’t be a normal person living in that pot, because the fingernails were too dirty. Isn’t that an odd thing to think at a time like that?"
 
 [[David]] was gone. He never existed.
+The [[Ming Vase]] also disappeared.
+Things are still disappearing.
 
 **Points of Interest From Jonathan Sims:**
+[[Jonathan Sims]] found a marriage certificate with [[Andre Ramao]] on it, but the other side is blank.
+This is not the first time [[Mikaele Salesa]] appeared in a statement.
+> "Even discounting the incidental role he played in case #0112905, he appears to have something of a knack for locating objects displaying more... disconcerting phenomena." ([[Episode 14 - Piecemeal]])
 
+[[Jonathan Sims]] crushed a spider, which collapsed a bookshelf in his office. ([[Spiders]])
+Behind the bookshelf is a passage. The [[White Worms]] were behind it.
+The recording ends with [[Jonathan Sims]] yelling "Sasha, run. Run!!"

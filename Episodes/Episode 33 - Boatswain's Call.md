@@ -6,13 +6,13 @@ Statement of [[Carlita Sloane]], regarding her work on a container ship travelli
 
 **Points of Interest:**
 
-[[Timothy Stoker]] talked to [[Jonathan Sims]] about his mis-numbering statements.
+[[Tim Stoker]] talked to [[Jonathan Sims]] about his mis-numbering statements.
 "Miss Montauk’s statement about her father’s killings. You refer to case, um, 9220611 as case, um, 1106922. Oh, and don’t get me started on the other case numbers around the Hill Top hauntings, they’re a mess!"
 [[Samantha Emery]] mentioned.
 "Last three digits of the year, then the day, then the month. I don’t know why she did it like that, but I can’t change it now."
 "So, in case 8163103 it isn’t clear if Albrecht’s wife is called ‘Clara’ or ‘Carla’ ‘cause you keep switching back and forth…
 [[Jonathan Sims]]: Well, I’m sorry if I found it hard to read a 200-year old letter, written in cursive by a native German speaker. Who complained about that one?"
-[[Timothy Stoker]] suggests rerecording those statements, [[Jonathan Sims]] doesn't.
+[[Tim Stoker]] suggests rerecording those statements, [[Jonathan Sims]] doesn't.
 [[Jonathan Sims]] hasn't been sleeping in a few months.
 
 
