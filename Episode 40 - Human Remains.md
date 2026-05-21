@@ -17,5 +17,22 @@ They're much faster outside the [[Magnus Institute|Institute]], maybe it's the l
 > Tim: "No. I pumped two full extinguishers into that room. Nothing was getting out."
 
 [[Not!Sasha]] makes the statement.
+[[Sasha James|Sasha]] used to work in [[Magnus Archive Artifact Storage|Artifact Storage]] for three months.
+[[Not!Sasha]] description of [['Michael']].
+> "Yes, Michael... With the bones in his hands. We still don’t know much about him, do we?"
+
+> [[Jonathan Sims|Jonathan]]: "Are you feeling alright? You seem a bit out of it."
+[[Not!Sasha]]: "Yes, I’m very tired. It’s hard to keep track of things sometimes."
+[[Jonathan Sims|Jonathan]] "Right. Go get some rest, Sasha."
+[[Not!Sasha]]: "Yes. I will."
+
+[[Martin Blackwood|Martin]] was working on case #0081709 when he heard the screaming.
+The walls of the [[Magnus Archive Tunnels|Tunnels]] block sound.
+> "It was a small room. Square. There was dust on everything. Cardboard boxes were piled around. They were full of old cassette tapes."
+> 
+> "She was sat in a wooden chair in the middle of the room. No worms. No cobwebs. Just… an old corpse. [[Gertrude Robinson]]. She was slumped forward, but I could see her mouth hanging open. So I ran, and I found the trapdoor soon afterwards."
+
+[[Gertrude Robinson|Gertrude]] was shot three times in the chest.
 
 **Points of Interest From Jonathan Sims:**
+> "[[Gertrude Robinson]], the last Archivist at the [[Magnus Institute]], and my predecessor, was murdered. There were no worms to infest her, no strange, ghostly apparitions to warp her mind, or caves to entomb her. She was killed, in the [[Magnus Archive|Archives]], by someone who used a gun, and that scares me far more than any spectre or twisted creature. Because that means someone here is a killer." [[White Worms]]
