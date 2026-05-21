@@ -35,4 +35,8 @@ The walls of the [[Magnus Archive Tunnels|Tunnels]] block sound.
 [[Gertrude Robinson|Gertrude]] was shot three times in the chest.
 
 **Points of Interest From Jonathan Sims:**
-> "[[Gertrude Robinson]], the last Archivist at the [[Magnus Institute]], and my predecessor, was murdered. There were no worms to infest her, no strange, ghostly apparitions to warp her mind, or caves to entomb her. She was killed, in the [[Magnus Archive|Archives]], by someone who used a gun, and that scares me far more than any spectre or twisted creature. Because that means someone here is a killer." [[White Worms]]
+> "[[Gertrude Robinson]], the last Archivist at the [[Magnus Institute]], and my predecessor, was murdered. There were no [[White Worms|Worms]] to infest her, no strange, ghostly apparitions to warp her mind, or caves to entomb her. She was killed, in the [[Magnus Archive|Archives]], by someone who used a gun, and that scares me far more than any spectre or twisted creature. Because that means someone here is a killer." [[White Worms]]
+
+> "In addition to the tape [[Sasha James|Sasha]] lost earlier, the tapes for cases 0051701 and 0160204 are gone." (0051701 [[Episode 24 - Strange Music]]) (0160204 [[Episode 26 - A Distortion]])
+
+> "I’m going to figure this out, and I’m not going to stop. They’ll have to kill me first."

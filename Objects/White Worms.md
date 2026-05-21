@@ -1,3 +1,10 @@
+---
+aliases:
+  - Worms
+  - Worm
+  - Maggots
+---
+
 Mentioned in [[Episode 6 - Squirm]], [[Episode 22 - Colony]],
 Maybe mentioned in [[Episode 50 - Foundations]].
 
