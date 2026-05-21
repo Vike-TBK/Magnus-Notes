@@ -34,4 +34,14 @@ Series of recorded segments of the staff of the [[Magnus Institute]] during an a
 > "I’ve been using it to record myself. I write poetry and I think the tapes have a sort of… low-fi charm."
 
 [[Sasha James|Sasha]] hid in the [[Magnus Archive Artifact Storage|Artifact Storage]] to his from the [[White Worms]].
-> ""
+> "Did I ever tell you I first joined the Institute as a practical researcher? I had to analyse and investigate all the stuff in here. Take notes after sleeping in the rusted chair, write in the memory book, all that sort of thing. I transferred after three months. Would’ve quit, but couldn’t afford to back then. Never understood why they keep this stuff secret. I mean, we’ve, we’ve enough here to send any sceptic packing, but it’s just locked away. I… I asked [[Elias Bouchard|Elias]] about it once, but he just muttered something about funding and mission statements. He’s good at changing the subject, isn’t he?"
+
+[[Sasha James|Sasha]] found the [[Ornate Wooden Table]].
+> "(Panicked Whispering in to Tape Recorder) John! John, I think there’s someone here. Hello? I see you. Show yourself."
+> 
+> "(Sashas voice appears different and is warped) Hello? I see you."
+> Sasha: "I see you."
+
+[[Martin Blackwood|Martin]] was separated from [[Tim Stoker|Tim]] and [[Jonathan Sims|Jonathan]].
+They open a trapdoor back into the [[Magnus Archive|Archive]] and run into [[Jane Prentiss]].
+The recording ends.
