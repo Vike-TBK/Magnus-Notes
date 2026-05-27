@@ -1,0 +1,1 @@
+Mentioned in [[Episode 4 - Page Turner]], [[Episode 12 - First Aid]], [[Episode 31 - First Hunt]], [[Episode 35 - Old Passages]], [[Episode 42 - Grifter's Bone]].
