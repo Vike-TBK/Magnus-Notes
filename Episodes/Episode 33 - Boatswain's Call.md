@@ -7,6 +7,7 @@ Statement of [[Carlita Sloane]], regarding her work on a container ship travelli
 **Points of Interest:**
 
 [[Tim Stoker]] talked to [[Jonathan Sims]] about his mis-numbering statements.
+[[Josh Cole]].
 "Miss Montauk’s statement about her father’s killings. You refer to case, um, 9220611 as case, um, 1106922. Oh, and don’t get me started on the other case numbers around the Hill Top hauntings, they’re a mess!"
 [[Samantha Emery]] mentioned.
 "Last three digits of the year, then the day, then the month. I don’t know why she did it like that, but I can’t change it now."
