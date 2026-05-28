@@ -1,1 +1,1 @@
-Mentioned in [[Episode 24 - Strange Music]]
+Mentioned in [[Episode 24 - Strange Music]], [[Episode 44 - Tightrope]]

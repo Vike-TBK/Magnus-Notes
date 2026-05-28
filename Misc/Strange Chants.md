@@ -1,1 +1,1 @@
-Mentioned in [[Strange Old Man (First Aid)]]
+Mentioned in [[Strange Man (Diego Molina)]]

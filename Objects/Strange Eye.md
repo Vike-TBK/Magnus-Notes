@@ -8,7 +8,7 @@ Has elations to a cult, [[People's Church of the Divine Host]]. The Earliest Fin
 
 **Appearance of Open Eye Symbol:**
 **[[Episode 4 - Page Turner]]:** [[Gerard Keay]]'s Painting
-**[[Episode 12 - First Aid]]:** [[Gerard Keay]]'s Tattoos, [[Strange Old Man (First Aid)]]'s Brass Pendant.
+**[[Episode 12 - First Aid]]:** [[Gerard Keay]]'s Tattoos, [[Strange Man (Diego Molina)]]'s Brass Pendant.
 **[[Episode 23 - Schwartzwald]]:** Bookshelf Pattern
 
 **Appearance of Closed Eye Symbol:**

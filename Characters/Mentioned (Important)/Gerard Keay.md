@@ -2,7 +2,7 @@ Mentioned in [[Episode 4 - Page Turner]], [[Episode 12 - First Aid]], [[Episode 
 
 Son of [[Mary Keay]].
 Has some relation with the [[Strange Eye]] Cult.
-Has a zippo light with an eye design on it.
+Has a zippo lighter with an eye design on it.
 Had a brass pendant of an eye.
 
 **Description in [[Episode 4 - Page Turner]]:**
