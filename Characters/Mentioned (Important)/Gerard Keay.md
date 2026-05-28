@@ -17,3 +17,6 @@ Had a brass pendant of an eye.
 
 **Description in [[Episode 35 - Old Passages]]:**
 "He looked to be in his late teens, I’d guess. He was dressed all in black, with heavy looking boots and a T-shirt with the logo of some band emblazoned on it, Megadon or Mastodon, or something like that. His hair was long and greasy, almost down to his shoulders, and looked to be dyed almost the same black as his clothes."
+
+**[[Episode 48 - Lost in the Crowd]]:**
+"He was pale, scrawny almost and looked utterly out of place. His loose, bright shirt was in stark contrast to his long black hair and he was staring at me in a way I found quite uncomfortable. He was staring at me with an air of concentration, like he was trying to read something written very small on my forehead."
