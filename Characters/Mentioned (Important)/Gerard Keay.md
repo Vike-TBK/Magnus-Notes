@@ -1,3 +1,7 @@
+---
+aliases:
+  - Gerard
+---
 Mentioned in [[Episode 4 - Page Turner]], [[Episode 12 - First Aid]], [[Episode 48 - Lost in the Crowd]].
 
 Son of [[Mary Keay]].

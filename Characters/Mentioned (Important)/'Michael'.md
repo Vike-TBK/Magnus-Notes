@@ -7,6 +7,8 @@ Appears in [[Episode 47 - The New Door]]
 
 Might be related to the [[Creature with Long Limbs]] seen in earlier statements.
 
+> "I am not a who, Archivist. I am a what. A who requires a degree of identity I can’t ever attain."
+
 **Description:**
 [[Episode 26 - A Distortion]]:
 > "It looked too tall, the limbs and body were very thin and almost wavy, like they didn’t have any structure or bones in them. I couldn’t make out a face, but it was the hands that were the most bizarre. They seemed to be stretched and inflated by the distorted light, until they were almost the size of the rest of the torso. The fingers were long and stiff, and seemed to end in sharp points. It stood completely motionless, and I could feel it staring at me."
