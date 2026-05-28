@@ -1,3 +1,7 @@
+---
+aliases:
+  - Leitner
+---
 Mentioned in [[Episode 4 - Page Turner]], [[Episode 17 - The Boneturner's Tale]], [[Episode 35 - Old Passages]], [[Episode 50 - Foundations]]
 
 Leitner had been a big name in the literary scene during the 1990s; some rich Scandinavian recluse paying absurd amounts of money for whatever books took his fancy.
