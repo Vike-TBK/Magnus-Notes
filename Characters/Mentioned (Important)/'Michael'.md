@@ -1,4 +1,8 @@
-Mentioned in [[Episode 26 - A Distortion]]
+---
+aliases:
+  - Michael
+---
+Mentioned in [[Episode 26 - A Distortion]], [[Episode 47 - The New Door]]
 Appears in [[Episode 47 - The New Door]]
 
 Might be related to the [[Creature with Long Limbs]] seen in earlier statements.

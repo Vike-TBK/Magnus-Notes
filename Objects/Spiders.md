@@ -1,1 +1,1 @@
-Seen in [[Episode 8 - Burned Out]].
+Seen in [[Episode 8 - Burned Out]], [[Episode 46 - Literary Heights]]

@@ -19,7 +19,7 @@ A painting of a [[Strange Eye]] drawn with strange branching patterns. Below it 
 [[Gerard Keay]] gave [[Dominic Swain]] a cup of black tea, without him even noticing or asking for it.
 [[Mary Keay]] gave him a book that seemed to be exactly like his [[Ex Altiora]] book, but it's in [[Sanskrit]].
 [[Mary Keay]] did something to the book in the shadows, and handed to him. Small bones bent or warped animal bones would fall out of the book. His [[Ex Altiora]] book had starker woodcut illustrations, and the image of the sky had the branching patterns from the eye. ([[Magic Books]])
-The branching pattern is known as the [[Lichtenberg figure]].
+The branching pattern is known as the [[Lichtenburg figure]].
 His friend, [[Michael Crew]] got struck by lightning as a kid because of [[Dominic Swain]] wanting to stay outside in the rain. Interesting how when this happened, there was that ozone smell.
 [[Gerard Keay]] arrived at [[Dominic Swain]]'s house, offering to buy the book for £5000. When [[Dominic Swain]] agreed, [[Gerard Keay]] didn't seem very happy about it. He said he'd bring back the money to pay him. Seems like he didn't expect Dominic to agree on the price, maybe he thought he would have lowered the price for it.
 As Gerard left, [[Dominic Swain]] found on the web on the murder of [[Mary Keay]] in [[September, 2008]]. Large pieces of her skin had been peeled away, and hung up to dry on fishing wire, all around the room. The photo of [[Mary Keay]] before the murder showed her with a full head of hair and no tattoos. Gerard had apparently been acquitted after a significant piece of evidence was deemed inadmissible, but there wasn't anything on what the evidence was.

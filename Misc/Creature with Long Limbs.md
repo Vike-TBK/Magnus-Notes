@@ -1,5 +1,5 @@
-Mentioned in [[Episode 1 - Anglerfish]], [[Episode 3 - Across The Street]], [[Episode 46 - Literary Heights]].
+Mentioned in [[Episode 1 - Anglerfish]], [[Episode 3 - Across The Street]], 
 
-Maybe mentioned in [[Episode 17 - The Boneturner's Tale]], [[Episode 26 - A Distortion]], [[Episode 28 - Skintight]]
+Maybe mentioned in [[Episode 17 - The Boneturner's Tale]], [[Episode 26 - A Distortion]], [[Episode 28 - Skintight]], [[Episode 46 - Literary Heights]]
 
-This might be some kind of Skin Walker.
+I have a theory this might be some kind of Skin Walker.
