@@ -15,3 +15,5 @@ Laughs weird.
 
 **Points of Interest From Jonathan Sims:**
 
+Michael Laugh.
+![[Michael Laugh 2 1.mp3]]
