@@ -39,3 +39,4 @@ One of [[Jonathan Sims|Jonathan]]'s first cases was in 2012.
 > JONATHAN SIMS "I guess it has caught us, in its own way."
 
 [[Not!Sasha]] said the table is what got [[Graham Folger]].
+> "I've found out where she's been going when she takes extra-long lunch breaks. It seems harmless enough, but I admit I'm a bit baffled. Every few days, she travels up to Baker Street to spend anywhere from 10 minutes to a full hour in Madam Tussaud's wax museum."
