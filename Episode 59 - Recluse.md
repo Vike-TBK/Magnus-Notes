@@ -6,6 +6,10 @@ Statement of [[Ronald Sinclair]] regarding his years spent in a teenage halfway 
 
 **Points of Interest:**
 [[Raymond Fielding]].
+They felt like they were doing things they wouldn't do. Like mind control.
+[[Dick Barradale]].
+[[Ornate Wooden Table]] makes an appearance.
+[[Agnes]].
 
 
 **Points of Interest From Jonathan Sims:**
