@@ -16,6 +16,5 @@ Vampires fragile.
 There are no reports of [[Trevor Herbert]]'s death, let alone existence.
 [[Jonathan Sims|Jonathan]] talked to Martin about lying to him about [[Trevor Herbert]]'s death.
 [[Martin Blackwood|Martin]] said he thought people said he died.
-[[Martin Blackwood|Martin]] lied about his degree to ge
-
-**Supplemental:**
+[[Martin Blackwood|Martin]] lied about his degree to get into anything, and he ended up in the [[Magnus Institute|Institute]].
+[[Jonathan Sims|Jonathan]] is relieved of this.
