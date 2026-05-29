@@ -1,1 +1,1 @@
-Mentioned in [[Episode 32 - Hive]]
+Mentioned in [[Episode 32 - Hive]], [[Episode 55 - Pest Control]]

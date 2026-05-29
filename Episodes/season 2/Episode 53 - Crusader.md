@@ -10,12 +10,10 @@ Statement of [[Walter Heller]], Regarding a discovery made near Alexandria in 19
 [[Darkness]].
 [[Creature with Long Limbs]].
 
-**Points **
-
+**Points of Interest From Gertrude Robinson:**
 Ancient iterations of the [[Magnus Archive|Archive]].
 "Those who sing the night."
 1365.
-
 
 **Points of Interest From Jonathan Sims:**
 
