@@ -39,7 +39,7 @@ Vampires are rare.
 
 
 **Points of Interest From Jonathan Sims:**
-[[Trevor Herbert]] died in the [[Magnus Institute]] from lung cancer just after making this statement. Before this, they advised him to seek medical attention, but he refused so he could make his statement.
+According to records, [[Trevor Herbert]] died in the [[Magnus Institute]] from lung cancer just after making this statement. Before this, they advised him to seek medical attention, but he refused so he could make his statement.
 The homeowner of the house [[Sylvia McDonald]] vampire inhabited wasn't found.
 [[Robert Arden]] did have records of living in the house the [[Robert Arden]] vampire inhabited.
 [[Trevor Herbert]] did give any more vampire killings.
