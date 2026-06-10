@@ -24,3 +24,5 @@ She burned five of them.
 
 **Supplemental:**
 > "I can’t afford to have Gertrude’s time at the Institute disappear back into obscurity. I’ll check the one I have and then wait to hear from Basira. Or perhaps I should try to make contact? I should really have gotten a number or something. Well, that’s a matter for later. I need to go home, try to get some sleep. I just wish it wasn’t raining."
+
+Probably means the [[Wooden Coffin]] is somewhere nearby.
