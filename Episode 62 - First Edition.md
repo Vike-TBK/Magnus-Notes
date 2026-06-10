@@ -25,8 +25,10 @@ Man appeared out of nowhere from the [[Large Book (First Edition)]].
 [[Bone Book]].
 > "Poems about dying animals, also in Sanskrit. Drops a lot of bones. I, I don't even think it has a real title. Pointless really. I eventually sold it to Leitner, though it came back to me after the attack."
 
-
+[[Mary Keay]] gave a page of the book to [[Gertrude Robinson|Gertrude]].
 
 **Points of Interest From Gertrude Robinson:**
+Seems like the page is made of skin.
 
-**Points of Interest From Jonathan Sims:**
+**Supplemental From Jonathan Sims:**
+> "In many ways the context this gives Mary Keay's odd relationship with death is the least interesting part of it. I knew that her family was connected to Jonah Magnus and the Institute somehow, but I had no idea that Gertrude was involved, even if they didn't like each other. Maybe I should have known. Elias might not have killed her, but there is a lot he's not telling me. I'm afraid to ask though. The Magnus Institute is not what it appears to be and, until I know what it is and what it's for, there’s no way I'm letting Elias know how much I'm aware of. But in spite of all that, I'm strangely excited, because what sticks out to me more than anything else in that tape is the very distinctive floorboard at the end. One that hasn't changed in the eight years since this statement was given. There's never been any reason to look closely at a random section of floor. This bit wasn't even breached by any of the worms. Because it had [[Gertrude Robinson|Gertrude]]'s hidden compartment beneath it. Mmm. No strange skin page. But there is a [[Gertrude Robinson's Laptop|Laptop]]. And a key. I wonder what it opens?"
