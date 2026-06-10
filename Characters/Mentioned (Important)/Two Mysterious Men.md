@@ -1,4 +1,4 @@
-Mentioned in [[Episode 2 - Do Not Open]], [[Episode 24 - Strange Music]], [[Episode 44 - Tightrope]], [[Episode 49 - The Butcher's Window]]
+Mentioned in [[Episode 2 - Do Not Open]], [[Episode 24 - Strange Music]], [[Episode 44 - Tightrope]], [[Episode 49 - The Butcher's Window]], [[Episode 61 - Hard Shoulder]]
 
 Appear in [[Episode 35 - Old Passages]].
 
