@@ -2,7 +2,7 @@ Mentioned in [[Episode 2 - Do Not Open]], [[Episode 24 - Strange Music]], [[Epis
 
 Appear in [[Episode 35 - Old Passages]].
 
-Are apart of [[Breekon and Hope deliveries]].
+Are apart of [[Breekon And Hope Deliveries]].
 Have connections with a [[Calliope]].
 
 Described as very tall and imposing.

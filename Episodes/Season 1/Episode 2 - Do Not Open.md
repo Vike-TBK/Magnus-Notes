@@ -10,7 +10,7 @@ He asks [[Joshua Gillespie]] to hold on to a package of his for awhile (the cask
 [[Two Mysterious Men]] deliver the [[Wooden Coffin]].
 [[Joshua Gillespie]] would sleepwalk opening the coffin, but would wake up before he opens it.
 [[John (Do Not Open)]] probably opened the coffin and died.
-The van of The [[Two Mysterious Men]] has the words "[[Breekon and Hope deliveries]]"
+The van of The [[Two Mysterious Men]] has the words "[[Breekon And Hope Deliveries]]"
 
 
 **Points of Interest From Jonathon Sims:**
