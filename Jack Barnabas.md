@@ -1,0 +1,1 @@
+Made a statement in [[Episode 67 - Burning Desire]].

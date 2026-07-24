@@ -13,10 +13,10 @@ After cleaning, the floor was undamaged.
 [[Ivo Lensik]]'s dad liked [[Fractals]], and found something that could "shake mathematics to its foundations once he figured out this truth, hidden in those cascading fractal patterns". One day he said someone had been following him, wanting to stop his work. When [[Ivo Lensik]] asked, he said, "all the [[Bones]] are in his hands."
 His father died, deep gouges in his arms an wrists. Fractal drawing were written on every surface. His death was written as suicide, but most likely it was murder.
 [[Ivo Lensik]] hit his head and was taken to the [[John Radcliffe Hospital]].
-The nurse at the hospital told [[Ivo Lensik]] that [[Raymond Fielding]] was taking care of a teenage girl named [[Agnes]], and she took over the house after he disappeared.
+The nurse at the hospital told [[Ivo Lensik]] that [[Raymond Fielding]] was taking care of a teenage girl named [[Agnes Montague|Agnes]], and she took over the house after he disappeared.
 In [[1974]], someone by the name [[Henry White]] when missing.
 [[Raymond Fielding]] was found dead in a fire.
-[[Ivo Lensik]] starts sensing the ghost of [[Agnes]].
+[[Ivo Lensik]] starts sensing the ghost of [[Agnes Montague|Agnes]].
 [[Ivo Lensik]] starts feeling hot, like he's being cooked from the inside, but it stopped when he heard a knock at the door. ([[Burning from the Inside]])
 A [[Catholic]] priest was at the door. His name was Father [[Edwin Burroughs]], and someone named [[Annie]] (the nurse) asked him to pay a visit. Father [[Edwin Burroughs]] is an [[Exorcist]].
 [[Ivo Lensik]] stabbed the dead tree and it started bleeding blood. The base of the tree had scorch marks.
@@ -30,4 +30,4 @@ The ghost stuff stopped after that.
 Father [[Edwin Burroughs]] made a statement called Statement 0218011. At this point, [[Jonathan Sims]] hasn't found the file.
 The earliest history of the build was being bought by [[Walter Fielding]] in [[1891]]. It was inherited by his son, [[Alfred Fielding]] in [[1923]]. It was inherited by his grandson, [[Raymond Fielding]] in [[1957]].
 [[Anna Kasuma]] is the nurse at the [[John Radcliffe Hospital]].
-Someone named [[Agnes Montague]] dead on [[November 23, 2006]], the same day [[Ivo Lensik]] pulled the tree down. She hung herself. He age was 26, which doesn't line up. But tied by a chain to her waist was a severed human hand, a right hand. Its owner was never identified but the coroner was apparently quite perplexed, as tissue decay would seem to indicate that the hand’s original owner must have died at almost the exact same time as [[Agnes]].
+Someone named [[Agnes Montague]] dead on [[November 23, 2006]], the same day [[Ivo Lensik]] pulled the tree down. She hung herself. He age was 26, which doesn't line up. But tied by a chain to her waist was a severed human hand, a right hand. Its owner was never identified but the coroner was apparently quite perplexed, as tissue decay would seem to indicate that the hand’s original owner must have died at almost the exact same time as [[Agnes Montague|Agnes]].
