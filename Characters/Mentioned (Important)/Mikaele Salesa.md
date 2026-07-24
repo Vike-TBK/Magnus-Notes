@@ -1,1 +1,3 @@
 Mentioned in [[Episode 38 - Lost and Found]]
+
+Sells paranormal goods.
