@@ -12,7 +12,7 @@ Statement of Police Constable [[Basira Hussain]] regarding her time investigatin
 > 
 > "“cleansing fire”, “all shall be ash” and the name Asag, which I later learned is some kind of Sumarian demon." (Reminds me of [[Episode 12 - First Aid]])
 
-She felt her hands burning when she was cuffing him. ([[Burning]]) (Or [[Burning from the Inside]])
+She felt her hands burning when she was cuffing him. ([[Burning]]) (Or [[Burning]])
 The man's name is [[Diego Molina]].
 The man whispered something into [[Spencer]]' ear, [[Spencer]] refused to say what it was.
 He had a red leather book. ([[Magic Books]]) ([[Red Book (First Aid)]])

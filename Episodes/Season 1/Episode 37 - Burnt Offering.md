@@ -20,7 +20,7 @@ The trees look like they've been planted 50 years ago. (So some time in the 1950
 > "In the centre was a large piece of stone, crudely hacked into what looked like a small seat or… maybe an altar."
 
 There were no animals around.
-When he got close, he started burning up. ([[Burning]] Maybe [[Burning from the Inside]])
+When he got close, he started burning up. ([[Burning]] Maybe [[Burning]])
 The alter is clean.
 > "Clean, smooth stone. No markings of any sort, nothing on top. Just… a rock. Around it, though, on the ground were scorch marks. They didn’t seem to radiate out from any one angle, they just covered areas of the forest floor. There was no ash, though, or debris, or anything that might have meant a fire, just the burn marks."
 

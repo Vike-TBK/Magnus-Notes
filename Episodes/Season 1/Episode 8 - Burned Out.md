@@ -17,7 +17,7 @@ The nurse at the hospital told [[Ivo Lensik]] that [[Raymond Fielding]] was taki
 In [[1974]], someone by the name [[Henry White]] when missing.
 [[Raymond Fielding]] was found dead in a fire.
 [[Ivo Lensik]] starts sensing the ghost of [[Agnes Montague|Agnes]].
-[[Ivo Lensik]] starts feeling hot, like he's being cooked from the inside, but it stopped when he heard a knock at the door. ([[Burning from the Inside]])
+[[Ivo Lensik]] starts feeling hot, like he's being cooked from the inside, but it stopped when he heard a knock at the door. ([[Burning]])
 A [[Catholic]] priest was at the door. His name was Father [[Edwin Burroughs]], and someone named [[Annie]] (the nurse) asked him to pay a visit. Father [[Edwin Burroughs]] is an [[Exorcist]].
 [[Ivo Lensik]] stabbed the dead tree and it started bleeding blood. The base of the tree had scorch marks.
 [[Ivo Lensik]] pulled the tree down using his car.
