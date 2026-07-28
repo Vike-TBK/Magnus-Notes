@@ -1,0 +1,1 @@
+Made a statement in [[Episode 68 - The Tale of a Field Hospital]]
