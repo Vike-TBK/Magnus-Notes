@@ -1,1 +1,1 @@
-Made statement in [[Episode 72 Takeaway]]
+Made statement in [[Episode 72 - Takeaway]]
