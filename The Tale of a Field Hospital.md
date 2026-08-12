@@ -1,1 +1,0 @@
-Book by [[Fredrick Treeves]]

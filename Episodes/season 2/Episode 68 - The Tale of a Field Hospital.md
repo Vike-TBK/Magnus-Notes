@@ -1,6 +1,6 @@
 Statement of [[Joseph Russo]], Regarding a book supposedly written by Sir [[Fredrick Treeves]].
 
-**Date of Statement:** [[July 3, 2003]].
+**Date of Statement:** [[June 3, 2003]].
 
 **Case Number:** #0030306
 
@@ -16,5 +16,15 @@ Final chapter.
 
 **Points of Interest From Jonathan Sims:**
 [[Joseph Russo]] found dead on [[June 5, 2003]], two days after his statement.
+Book is probably a [[Jurgen Leitner|Leitner]] book.
+[[Gertrude Robinson|Gertrude]] probably destroyed the book.
+Maybe an ancestor of the [[Amherst Family]]. [[John Amherst]]
+[[Jeffrey Amherst]].
+Might be related to the [[White Worms|Worms]].
 
-**Supplemental:
+**Supplemental:**
+[[Jonathan Sims|Jonathan]] went into the [[Magnus Archive Tunnels|Tunnels]] and got lost.
+He ran into spiders. Someone's down there with him.
+[[Not!Sasha]] found [[Jonathan Sims|Jonathan]], and brought him out.
+[[Not!Sasha]] was taller for a second.
+[[Creature with Long Limbs]].
