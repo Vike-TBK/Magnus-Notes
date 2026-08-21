@@ -1,4 +1,4 @@
-Statement of [[]], Regarding
+Statement of [[]], regarding
 
 **Date of Statement:** [[]]
 

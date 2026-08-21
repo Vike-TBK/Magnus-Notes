@@ -1,1 +1,0 @@
-Mentioned in [[Strange Man (Diego Molina)]]

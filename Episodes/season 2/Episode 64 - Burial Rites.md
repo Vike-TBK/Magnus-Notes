@@ -9,7 +9,7 @@ Statement of [[Donna Gwynne]], regarding an unlicensed archaeological dig near t
 Egyptian tombs.
 Forgotten monarch tomb.
 large, empty tunnels. Labyrinth.
-> "It was completely empty, save for a raised dais in the centre, about 3 feet off the floor. Lying there were the remains of an unpainted wooden sarcophagus. It had long since rotted away, though the uncharacteristic copper bands that wrapped it still seemed in good condition. Among the debris, I could see the pale wrapping of the corpse, tight around in a way that reminded me disconcertingly of a straightjacket. It had worn away in many places, leaving the flesh of the mummy itself on show, dark black and almost shiny in the torchlight. There was nothing else there at all. No treasures and no other exits."
+> "It was completely empty, save for a raised dais in the center, about 3 feet off the floor. Lying there were the remains of an unpainted wooden sarcophagus. It had long since rotted away, though the uncharacteristic copper bands that wrapped it still seemed in good condition. Among the debris, I could see the pale wrapping of the corpse, tight around in a way that reminded me disconcertingly of a straightjacket. It had worn away in many places, leaving the flesh of the mummy itself on show, dark black and almost shiny in the torchlight. There was nothing else there at all. No treasures and no other exits."
  ([[Mummy (Burial Rites)]])
 
 Small bone dice.
