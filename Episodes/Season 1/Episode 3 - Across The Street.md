@@ -13,3 +13,4 @@ Something grabbed [[Amy Patel]]'s shoulder and threw her on the road. [[Graham F
 [[April 7, 2007]], 10:30 pm. A long "arm" appears outside [[Graham Folger]]'s window flat. Then the creature (folded?) Though his window "like an optical illusion painting", and closed the window behind it.
 [[Not!Graham]].
 [[Graham Folger]]'s journal's have the words "Keep watching" over and over.
+[[Not!Thems]].
